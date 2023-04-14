@@ -8,4 +8,4 @@
 
 🌟 When I'm not coding or studying, I enjoy participating in hackathons and attending tech meetups to network and learn from other developers.
 
-📫 Feel free to reach out to me on [insert social media handles] or email me at [insert email address]. Let's connect and collaborate on exciting new projects!
+📫 Feel free to reach out to me on (https://www.linkedin.com/in/virendra-shinde-61245322b/) or email me at virendrashinde159@gmail.com. Let's connect and collaborate on exciting new projects!
